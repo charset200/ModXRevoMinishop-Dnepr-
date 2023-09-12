@@ -1,0 +1,1 @@
+# ModXRevoMinishop-Dnepr-
